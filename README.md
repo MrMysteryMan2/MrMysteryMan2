@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MrMysteryMan2
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning stuff
-- 💞️ I’m looking to collaborate on <nothing> 
+- 💞️ I’m looking to collaborate on nothing at all. 
 - 📫 How to reach me... <pls don't reach me>
 
 <!---
